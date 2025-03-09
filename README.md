@@ -1,1 +1,0 @@
-# gest-o.estagi-rios
